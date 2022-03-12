@@ -1,2 +1,2 @@
 # CV
-ouai ouai !
+https://condefruit.github.io/CV/cvfr.html :)
